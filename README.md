@@ -3,7 +3,7 @@
 > 联系方式：3717908744 
 > 电子邮箱：baibaoqing@hotmail.com    
 > 个人格言：能做的漂亮完成，不能做的评估后想方设法完成
- 
+ http://www.cnblogs.com/GerryOfZhong/p/6141091.html
  
 ###工作经历
 > 上海蓝灯数据科技股份有限公司     
